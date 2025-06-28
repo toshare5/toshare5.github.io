@@ -1,4 +1,4 @@
-### 🚀最后更新时间: 2025-06-28 09:24:12
+### 🚀最后更新时间: 2025-06-28 10:49:41
 
 ![Banner](https://raw.githubusercontent.com/tolinkshare2/tolinkshare2.github.io/main/1893358159.jpg)
 
@@ -15,19 +15,19 @@
 >🚀免费Clash订阅链接
 
 ```
-https://myHyyx.tosslk.xyz/a05009eda90f5f51ba12acd9aa4f4565
+https://Psykyy.tosslk.xyz/bd87c3db1b037fddbd3948fdde595b34
 ```
 
 >🚀免费v2rayN订阅链接
 
 ```
-https://myHyyx.tosslk.xyz/a05009eda90f5f51ba12acd9aa4f4565
+https://Psykyy.tosslk.xyz/bd87c3db1b037fddbd3948fdde595b34
 ```
 
 >🚀免费iOS小火箭订阅链接
 
 ```
-https://myHyyx.tosslk.xyz/a05009eda90f5f51ba12acd9aa4f4565
+https://Psykyy.tosslk.xyz/bd87c3db1b037fddbd3948fdde595b34
 ```
 
 #### 翻墙机场是什么意思？
