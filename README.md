@@ -1,4 +1,4 @@
-### 🚀最后更新时间: 2026-11-13 01:19:22
+### 🚀最后更新时间: 2026-11-13 20:27:49
 
 # Tolink 小火箭免费节点（Shadowrocket / iPhone）
 
@@ -17,7 +17,7 @@
 >🚀免费iOS小火箭订阅链接（Shadowrocket，iPhone / iPad 通用）
 
 ```
-https://xHuJsT.tosslk.xyz/0694878fa4b9efa2f283bfb61307b9cf
+https://bb1HC4.tosslk.xyz/6405db47fb142b3879e898f63e414f26
 ```
 
 ## 先装好 Shadowrocket
